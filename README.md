@@ -10,6 +10,8 @@ Creating a Cyberpunk-styled Smart Home Model with LED Illumination and Digital L
 
 ![04219280-4f67-4777-9f13-5ee30b501259](https://github.com/YakrooThai/Cyberhome/assets/56666070/5311a5a5-cfaf-408e-9b59-21870e9847a1)
 
+https://www.youtube.com/shorts/sLB-GE5Grrg
+
 https://www.youtube.com/shorts/bfbvqQh6vFY
 
 https://www.youtube.com/shorts/5N6DnwF26fE
