@@ -26,3 +26,9 @@ https://www.youtube.com/shorts/kehn0dSckYI
 
 
 ![68705e46-0c24-4fd3-b9e3-26684a18ea6a](https://github.com/YakrooThai/Cyberhome/assets/56666070/881ece21-a29d-4b59-952d-49691539904b)
+
+Please follow my YouTube channel. Still a newbie to make a YouTube channel.
+
+Just press Subscribe my youtube channel. Thankyou
+
+https://www.youtube.com/@Yakroo108  < ===== ( -/|\-) 
